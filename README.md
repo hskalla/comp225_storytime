@@ -17,3 +17,5 @@ The granola bar I ate on the way over here was not quite as filling as I had hop
 Chapter 3: The End of Time
 
 After the behemoth went on its rampage, it appeared to the last human settlers of the last solar system in the galaxy. They had feared this day for many years, having forsaw this catastrophe long ago. When the behemoth arrived, it said "And now, you become me," and the monks of the last planet finally saw through the behemoths eyes. For even in their wisdom, they had not understood its cause. Now, at the end of time and the universe, the behemoth granted them a small bit of joy. And then, the behemoth was gone.
+
+slksdjflsdkfj
